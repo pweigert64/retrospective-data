@@ -1,0 +1,38 @@
+<?xml version="1.0" encoding="UTF-8"?>
+<gpx version="1.1" creator="Gpx-Optimizer" xmlns="http://www.topografix.com/GPX/1/1">
+<trk>
+  <name>Ski_Steinfeldsp.N-Kar</name>
+  <type>ski</type>
+  <trkseg>
+    <trkpt lat="47.26619" lon="13.45633"><ele>2136</ele></trkpt>
+    <trkpt lat="47.26698" lon="13.45640"><ele>2093</ele></trkpt>
+    <trkpt lat="47.26727" lon="13.45714"><ele>2048</ele></trkpt>
+    <trkpt lat="47.26750" lon="13.45925"><ele>1952</ele></trkpt>
+    <trkpt lat="47.26775" lon="13.45996"><ele>1987</ele></trkpt>
+    <trkpt lat="47.26784" lon="13.46177"><ele>1901</ele></trkpt>
+    <trkpt lat="47.26831" lon="13.46313"><ele>1889</ele></trkpt>
+    <trkpt lat="47.26879" lon="13.46365"><ele>1858</ele></trkpt>
+    <trkpt lat="47.26931" lon="13.46412"><ele>1863</ele></trkpt>
+    <trkpt lat="47.26923" lon="13.46516"><ele>1847</ele></trkpt>
+    <trkpt lat="47.26965" lon="13.46570"><ele>1733</ele></trkpt>
+    <trkpt lat="47.26986" lon="13.46635"><ele>1786</ele></trkpt>
+    <trkpt lat="47.27116" lon="13.46609"><ele>1750</ele></trkpt>
+    <trkpt lat="47.27140" lon="13.46601"><ele>1724</ele></trkpt>
+    <trkpt lat="47.27159" lon="13.46548"><ele>1697</ele></trkpt>
+    <trkpt lat="47.27169" lon="13.46521"><ele>1678</ele></trkpt>
+    <trkpt lat="47.27274" lon="13.46394"><ele>1628</ele></trkpt>
+    <trkpt lat="47.27451" lon="13.46403"><ele>1595</ele></trkpt>
+    <trkpt lat="47.27682" lon="13.46475"><ele>1584</ele></trkpt>
+    <trkpt lat="47.27737" lon="13.46464"><ele>1598</ele></trkpt>
+    <trkpt lat="47.27863" lon="13.46506"><ele>1583</ele></trkpt>
+    <trkpt lat="47.28070" lon="13.46505"><ele>1580</ele></trkpt>
+    <trkpt lat="47.28264" lon="13.46372"><ele>1535</ele></trkpt>
+    <trkpt lat="47.28713" lon="13.46025"><ele>1424</ele></trkpt>
+    <trkpt lat="47.29001" lon="13.45813"><ele>1379</ele></trkpt>
+    <trkpt lat="47.29136" lon="13.45630"><ele>1392</ele></trkpt>
+    <trkpt lat="47.29252" lon="13.45553"><ele>1343</ele></trkpt>
+    <trkpt lat="47.29379" lon="13.45568"><ele>1352</ele></trkpt>
+    <trkpt lat="47.29344" lon="13.45590"><ele>1342</ele></trkpt>
+  </trkseg>
+</trk>
+</gpx>
