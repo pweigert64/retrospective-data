@@ -1,0 +1,8 @@
+## **Zauchensee	19. -25. Jänner 2026**
+So: Heuer bilden wir wieder ein Duo, weil Thomas in Innsbruck weilt und bis Februar nach einer Leistenbruch-OP ein ärztliches Ski-Fahrverbot auferlegt bekommen hat. 15:03 besteige ich die neue Schwarzwandbahn in Richtung Steinfeldspitzenkare. Defensive Spurwahl ist angesagt - tödliche Lawinenunfälle haben dieses Wochenende schon überschattet. Zur Dämmerung bin ich wieder im Hotel.
+Mo: Wir bleiben im Gebiet. Die traurige Schneelage bewirkt harte Pisten. Das hat den Nachteil, dass die Kante nicht den gewünschten Widerstand des Schnees bekommt. Jeden Tag die gleiche Situation: Bei der ersten Fahrt liegt der Schlusshang völlig im Schatten, bei der 2ten Fahrt ist die Licht-/Schattengrenze mitten im Hang. Das ist unangenehm, weil man mit hohem Tempo ins Nichts eintaucht. Das Tagweidegg ist das abendliche Tourenziel. Der Graben zur Roßkopf-Piste ist Pipifein.
+Di: Nach dem obligaten Start am Roßkopf pendeln wir über den Shuttleberg nach Flachau. Der Rote 8er ist schon einigermaßen abgekratzt.Die Abfahrten zum Spacejet 1 und Starjet 3 zum Grießenkareck bieten die besten Bedingungen. 
+Mi: Bleiben wir wieder vor Ort. Am Abend geht's wieder auf das Tagweidegg - heute längs des Sommerwegs. Der Schnee im Tourengelände ist nur noch traurig. Die Tourenski packe ich nicht mehr aus.
+Do: Vormittag Zauchensee, Nachmittag Flachau.
+Fr: Heute hat der Schnee am Morgen etwas mehr Grip - keine Ahnung warum, das Wetter ist eigentlich jeden Tag gleich, nur für heute ist der Beginn eines Wetterumschwungs angesagt.
+Sa: Nach ausgiebigem Frühstück geht's ab nach Hause.
