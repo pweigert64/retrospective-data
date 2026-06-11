@@ -1,0 +1,3 @@
+## **Hochkogel 1591m Nestlersteig	17. Juli 2022**
+Nach der gestrigen Einladung bin ich nur zu einer kleineren Wanderung fähig. Lukas ist aber nach seinem gestrigen Ausflug nicht einmal dafür bereit. Ich habe den Nestlersteig auf das Hochkogelhaus vorgeschlagen, aber in etwa auf halbem Weg beschließt Lukas, dass es ihm reicht. Und weil Waltraud bei Lukas bleibt wandere ich alleine weiter zum Hochkogel und von dort über den Hüttenzustieg retour zum Auto. Nach ca. 1h war das Gin-Tonic-Kopfweh verflogen.
+**[8:15-12:00-14:00; 5¾h; Waltraud, Lukas]**
