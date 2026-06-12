@@ -1,0 +1,4 @@
+## **Hirscheck 2068m Nord-Flanke	19. Feber 2022**
+Sonntagsausflug mit Matthias und Matthias (aka Kohli). Über die alte Bärenalmpiste und die lange eisige Querung hinüber zur Bärenalm. Der Pulver liegt nur auf der Nordostseite - überall sonst hat der Wind alles ausgefegt, der Untergrund ist hart. Direkt über die Nordflanke steigen wir in Richtung Gipfel auf. Es immer steiler und härter. Die Ski am Rucksack überbrücken wir den letzten Steilaufschwung. Über die Südseite weht kräftiger Wind. Die Einfahrt ist heute anspruchsvoller wie erwartet. Danach folgt noch genüssliches Schwingen bis zur Bärenalm. Die Querung brennt unheimlich in den Oberschenkeln. Wir kehren noch im Stoda auf ein Bierchen ein. 
+___
+**[9:00-12:35-14:00; 5h;1400Hm; Matthias&Matthias]** 

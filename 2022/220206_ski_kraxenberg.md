@@ -1,0 +1,4 @@
+## **Gr. Kraxenberg 2192m Wassertal	6. Feber 2022**
+Sonntagsausflug nach Hinterstoder und unerwarteter Härtetest. Nach gut 2h sind wir bei der Steilstufe. Der Sturm wütet genauso wie letzte Woche, aber zu zweit ist es trotzdem einfacher. Wir stapfen nach rechts, sodaß wir erst am Ende der Querung die Ski anlegen. Der Überstieg zum Plateau erfordert nochmals vollen Einsatz gegen den Sturm und die verglaste Oberfläche. Ich denke keine Sekunde an die Möglichkeit Harscheisen anzulegen - zu plötzlich kommt der Übergang. Das Plateau ist extrem abgeweht. Die letzten Meter zum Kraxenberg schiebt uns der Wind hinauf.(3¾h) Trotz des starken Windes ist der Schnee überraschend gut, sehr gut sogar! 
+___
+**[7:25-11:10-12:30; 5h; 1500Hm; Matthias]**
