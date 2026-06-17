@@ -1,0 +1,14 @@
+## **Zauchensee	16.-22. Jänner 2022**
+Urlaub im Walchhofer  Hotel Zentral - der erste Skiurlaub seit 3 Jahren bzw. der erste Zauchensee Urlaub seit 2 Jahren. Thomas hat kurzfristig abgesagt. Also sind Waltraud und ich nur zu zweit. Unser Anreisetag ist der Sonntag, heute war noch Weltcup Super-G. Nach dem Checkin im Hotel mache ich mich auf den Weg zum Hakopf 1996m. Ich muss mich beeilen, denn Mitte Jänner geht die Sonne früh unter. Am Gipfel verschwindet sie gerade hinterm Schwarzkopf. Die Abfahrt ist super bis zu den Almen der Strimshütten. Ab dort muss ich bereiche suchen, die nicht von angebrannten Skispuren verunziert sind.
+___ 
+Mo: Das Wetter ist bescheiden, der Schnee extrem gut, ganz wenig Publikum. Wir haben fast jede Gondel für uns. Die Schwarzwandbahn bleibt wegen starkem Wind geschlossen. Um 1400 ist für Waltraud Feierabend. Ich mache mich vom Gamskogel-2 auf den Weg zum Tagweidegg 2135m. Die Sicht ist mies und der Schnee wechselt. Aber vom Hirschköpf hinab zur Roßkopfabfahrt gibt's nochmal perfekten Powder. 
+___
+Di: Von Stunde zu Stunde wird das Wetter besser und immer noch ist das Publikum spärlich. Immer wieder begeisternde Abfahrten. Die Schwarzwand erreiche ich nicht, aber jenseits des Sattel zw. Gamskopf und Schwarzwand ins Schneekar sind die Verhältnisse gut. Unberührter Powder bis 1800 dann in das Kar der Steinfeldspitze bis 2100m - dort wird's windgepresst und ich rausche wieder zauchalm. Sogar die Pisten sind mit dem Tourenski noch fein zum Carven.runter zur Ober
+___
+Mi: Heute war das Wetter von Beginn an perfekt. Heute sind etwas mehr Leute. Wir haben einen Ausflug nach Flachau mit dem neuen Panorama-Link geplant. Problem ist nur, dass Waltraud die Roßkopfbahn nicht verlassen will. Waltraud erkennt den Wert ihres Skihelms als ein Ast vor ihr auf der Piste einschlägt. Letztendlich bringt uns der Bus zum Shuttleberg. Wir fahren hinunter zum Lumberjackshuttle in Kleinarl und weiter mit dem Panorma-Link. Wir fahren nach Wagrain und Flachau und irgendwann retour nach Kleinarl. Die Abfahrten vom Bubble-Shuttle sind die besten Fahrten des Nachmittags. Langsam müssen wir zum Zeug schauen, dass wir zurück kommen. Waltraud benötigt einen Kaffee - immerhin sind wir ohne Pause bis 1500 gefahren. Ich fahre noch bis zum Betriebsende. 
+___
+Do: Wetter mäßig, Schnee perfekt, Pisten leergefegt - my private Zauchensee! Ich kann nicht aufhören. Die letzten Fahrten verbringe ich wieder am Roßkopf. Wind und leichter Schneefall - bei jeder Abfahrt sind meine eigenen Spuren wieder ausradiert. Jedes Mal sage ich mir das ist jetzt das letzte Mal und immer wieder besteige ich die Gondel.
+___
+Fr: Wetter mäßig, Schnee massig - Powdern bis zum Abwinken! Aber im freien Gelände würde ich mit den kurzen Skiern nicht glücklich werden - es ist einfach zu tief! Waltraud räumt 2h lang das Auto ab.
+___
+Sa: Mühsame heimfahrt - auch am Beifahrersitz.

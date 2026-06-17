@@ -1,0 +1,3 @@
+## **Grillenparz 842m - Kirchdorf 8er	31. Dezember 2021**
+Silvester mit Herbsttemperaturen. Waltraud und ich fahren mit dem Zug nach Kirchdorf und wandern direkt hinauf über die steile Südflanke zum Grillenparz. Dort ist einiger Betrieb. Bei einem Hochstand legen wir uns in die Sonne. Eigentlich wollten wir nach Schlierbach absteigen, aber wir hören, dass es dort sehr feucht ist. Also nehmen wir die zweite Südoption als Abstieg. Auf einer Wiese legen wir uns nochmal in die Sonne, bevor wir forschen Schritts zum Zug eilen. Wir haben an keiner Haltestelle länger als 2 Minuten auf Zug oder Bus gewartet! 
+**[11:34 - 15:22; ca. 400Hm]**

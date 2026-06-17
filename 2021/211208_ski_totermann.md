@@ -1,0 +1,4 @@
+## **Toter Mann ~1920m - Seewand	8. Dezember 2021**
+Die Wurzeralmbahn ist noch ausser Betrieb aber am Parkplatz merkt man nichts davon. Bereits um 8:30 ist da mehr los wie sonst ½h später. Ich latsche die Wurzerabfahrt hinauf, rüber zum Hahnlgraben und runter zur Frauenkar Talstation. Durch den Teichlboden und überaus unangenehm durch die Felsblöcke unter die Rote Wand und weiter am Kamm in Richtung Speikwiese. Die Knöchel schmerzen in den neuen Schuhen, die Sicht ist mies und die steile Gipfeleinfahrt vom Toten Mann ist heute eher zu riskant. Mir reicht's eh schon. Die Seewandabfahrt im Pulverschnee - auch nicht schlecht. Leider ist es oberhalb des Brunnsteinersees wieder vorbei mit Lustig. Ich schleppe mich durch den Teichlboden retour zum Hahnlgraben. Über die Gammering zurück zum Auto.
+___
+**[~1400Hm; 8:30-14:30; 6h]**
