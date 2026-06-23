@@ -1,0 +1,5 @@
+## **Rotofen & Karkopf II/III	25. Oktober 2021**
+Salzburgexpedition. Waltraud ist nach Spanien abgereist. Heute hab ich Urlaub weil das Wetter perfekt sein soll und morgen hab ich mit Matthias noch eine Tour vereinbart. Das Wetter war dann nicht so toll, aber für die Tour war's ok. Erstes Ziel ist die Hex aka Vd. Rotofen (1369m, 11:00), ein Felszapfen, der durch eine Route im unteren 3ten Grad bestiegen wird - unglaublich abgeschmiert und auch oft verwendete Griffe wackeln - definitiv keine besondere Kletterei. Zum Glück ist niemand unterwegs, sodass das Abklettern kein Problem darstellt. Weiter geht es zur "Steinernen Agnes" eine fürwahr interessante Felsformation. Weiter geht es zum höchsten Gipfel des Lattengebirges dem Karkopf 1739m. Am Plateau gibt es nur noch Latschen. Für den Rückweg muss ich wieder zur Steinernen Agnes zurück. Von dort steige ich direkt nach Hallthurm ab. So direkt ist das aber nicht, denn auch unten warten noch einige Meter, um von Bichellehen zum Auto zurückzukommen. 
+Am Abend belohne ich mich mit einem Besuch beim Raschhofer. Die Nacht verbringe ich bei Matthias. 
+___
+**[9:00-16:20; 7¼h; ~1400Hm]**
