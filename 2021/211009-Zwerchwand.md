@@ -1,0 +1,2 @@
+## **Zwerchwand & Predigtstuhl	9. Oktober 2021**
+Waltraud und ich treffen Matthias in Bad Ischl am Bahnhof. Von dort weiter zum Berghotel Predigtstuhl. Per pedes via Rossmoosalm zur Zwerchwand [1h]. Luftiger Ausklong 5c, Indian Summer 6a, New School 6a, 13 years after 6b. Weiter wieder zurück via Predigtstuhl. Bei der Rückfahrt nach Ischl ist die Bundesstrasse durch einen Unfall blockiert. Wir weichen abenteuerlich über Lauffen aus.
